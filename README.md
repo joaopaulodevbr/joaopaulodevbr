@@ -1,6 +1,6 @@
 ## Boas vindas ao meu perfil 😀
 
-Meu nome é João Paulo e eu trabalho com tecnologia da informação, atuando nessas áreas desde 2021 😎
+Meu nome é João Paulo e eu trabalho como TI, atuando nessas áreas desde 2021 😎
 
 <br>
 
